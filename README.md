@@ -1,0 +1,2 @@
+- Hi, I’m Sofia
+- 👀 Study in Russian Technological University MIREA
